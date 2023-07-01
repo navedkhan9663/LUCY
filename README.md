@@ -1,0 +1,2 @@
+# LUCY
+LIKE DEVIL 😈
